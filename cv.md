@@ -12,8 +12,8 @@ Education
 ---------
 
 2008-2012 
-:   MECHATRONICS; Technical College
+:   MECHATRONICS; [Technical College](http://www.college-ripo.by/)
 
 
 2012-2016
-:  ELECTRONICS BACHELOR’S DEGREE ; IIT BSUIR
+:  ELECTRONICS BACHELOR’S DEGREE ; [IIT BSUIR](https://www.bsuir.by/)
